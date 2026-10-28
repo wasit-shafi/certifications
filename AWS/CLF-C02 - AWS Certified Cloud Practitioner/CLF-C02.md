@@ -56,7 +56,7 @@
 - **100% Confident** about clearing the exam? Solve by Elimination.
 - **Pro Tip: The Smarter Approach for passing the Associate level certifications directly.**
 
-> All the best for your exam, follow for more such content
+> **All the best for your exam, follow [@wasit-shafi](https://github.com/wasit-shafi) for more such content**
 
 # My Revision Topics List on Notion
 
